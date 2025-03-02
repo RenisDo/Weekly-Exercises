@@ -15,7 +15,7 @@ Hello! My name is Đỗ Huy Hoàng, and I am currently a student in class **K69I
 
 ## Contact
 
-**Personal:** trinhthinuong1980@gmail.com
-**College:** 24022792@vnu.edu.vn  
+- **Personal:** trinhthinuong1980@gmail.com
+- **College:** 24022792@vnu.edu.vn  
 
 Thank you for visiting my profile!  
